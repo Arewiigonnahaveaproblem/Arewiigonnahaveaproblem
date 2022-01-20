@@ -1,1 +1,1 @@
-Hi I'm just here to download hacked cients for minecraft
+Hi I'm just here to download hacked clients for minecraft
